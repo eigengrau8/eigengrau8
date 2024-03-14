@@ -8,3 +8,5 @@ Within my GitHub repositories, you will find a blend of both theoretical explora
 Feel free to provide feedback on any of my projects. 
 I am always open to connecting with fellow learners and like minded individuals.
 Thank you for stopping by! 
+
+LinkedIn: https://www.linkedin.com/in/harshita-gupta-616196212
